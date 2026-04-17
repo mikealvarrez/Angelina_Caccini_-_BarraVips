@@ -23,8 +23,11 @@ Ideal para quem busca acompanhantes no Rio de Janeiro com qualidade superior, at
 - 📢 Anúncio: https://www.barravipsrio.com/acompanhantes-rio-de-janeiro-angelina-caccini
 - ⭐ Reviews: ???
 - 🔒 Conteúdo: ???
+- 💻 Site 1: https://angelina-caccini-barra-vips.vercel.app
+- 💻 Site 2: https://angelina-caccini-barravips.onrender.com
 - 📌 Pinterest: https://pinterest.com/mikealvarrez/angelina-caccini-barravips
 - 🔗 Links: https://allmylinks.com/mikealvarrez
+
 
 
 ## Sobre
